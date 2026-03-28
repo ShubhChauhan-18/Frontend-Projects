@@ -1,4 +1,4 @@
-# FRONTEND PROJECTS 
+# FRONTEND PROJECTS
 
 Projects are added frequently! ⚡
 
